@@ -1,4 +1,3 @@
-### Hi there 👋
 
 ![Alt Text](https://i.imgur.com/OTNG7.gif)
 
